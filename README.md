@@ -1,2 +1,2 @@
 # __Hoja-de-vida__
-Hoja de vida de cristian
+Hoja de vida de Cristian
